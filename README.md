@@ -1,0 +1,1 @@
+# se2-mini-2025-w1-kseniabiazruchanka
